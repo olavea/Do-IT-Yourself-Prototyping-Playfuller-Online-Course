@@ -127,9 +127,6 @@ https://calendly.com/olavea/virtuell-kaffe
 
 100% uforpliktende og trivelig.
 
-English:
-Do-IT-Yourself Playfuller Prototyping with Ola
-
 Om Ola
 
 Ola digger folk og koding.
@@ -148,3 +145,20 @@ https://calendly.com/olavea/virtuell-kaffe
 
 100% uforpliktende og trivelig.
 
+
+English Sales Page:
+Do-IT-Yourself Playfuller Prototyping with Ola
+
+Conferences:
+Webdagene:
+Why do we design stuff that just doesn't work? Why do we think that just because something is digital it's better for our planet? Truth is; we make a lot of bad services and our digital waste is having a negative impact on the environment. Y will give you the tools and a nudge in the right direction.
+
+WHY ATTEND
+Learn how to design and build better products and services, for people and the planet. You'll get the tools you need to find and solve real problems.
+
+WHO IS Y FOR?
+Y is for everybody involved in making products and services in companies and organizations. Innovation teams, designers, UXers, project managers, business developers, digital managers or whatever you may call yourself.
+
+5 REASONS TO JOIN
+LESS BUZZ, MORE ACTION
+You will learn things at Y you can take home, share with colleagues and use. We provide slides, videos, and summaries. Just bring your brain.
