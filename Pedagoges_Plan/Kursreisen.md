@@ -2,6 +2,7 @@ Before Course
 
 -3 Aware
 "typeform" : "What? Do? For who?"
+Pedagoges_plan/atLeast3WeeksBefore.md
 
 -2 info
 "typeform" : "Playful Person (Commandement #1)"
