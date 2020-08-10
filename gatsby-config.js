@@ -1,10 +1,15 @@
-/**
- * Configure your Gatsby site with this file.
- *
- * See: https://www.gatsbyjs.org/docs/gatsby-config/
- */
-
 module.exports = {
-  /* Your site config here */
-  plugins: [],
+  plugins: [
+    {
+      resolve: `@olavea/gatsby-theme-picture-book`,
+      options: {
+        basePath: `/`,
+        imagePath: `book/images`,
+        infoLink: {
+          title: "Do-IT-Yourself-Prototypin",
+          url: `https://olavea.com`,
+        },
+      },
+    },
+  ],
 }
