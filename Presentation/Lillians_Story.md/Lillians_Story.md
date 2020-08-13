@@ -68,46 +68,58 @@ The Do-IT-Yourself-Ship-Set for backyards is delivered. Lillian builds & builds 
 «Say please.» Says NewGirl.
 
 «Please.» Says Lillian.
-«Boom-Shaka-Lacka!» Says NewGirl and pulls the grey piece of cloth off a gloriously white TimeShip with a rainbowy unicorn horn.
+«Boom-Shaka-Lacka!» Says NewGirl and pulls a pink piece of cloth off a gloriously white TimeShip with a rainbowy unicorn horn.
 
-«Wooow! It' a TimeShip. The unicorny TimeShip with the special rainbowy horn that glows in the dark.» Says Lillian.
-«Yes.» Says NewGirl.
-
-«I have heard about it in one of my audiobooks. Cool. Where did you buy it? On the internet?.» Says Lillian.
+«Oooh! It' a TimeShip! The unicorny TimeShip with the special rainbowy horn that glows in the dark.» Says Lillian.
+«Yes.» Says NewGirl with a cat-got-the-cream smile.
+«I have heard about it in one of my audiobooks. Cool. Where did you buy it? On the internet?» Says Lillian.
 «Forget about that, don't you want all the children in Norway to play with their friends again?» Says NewGirl.
 
 «Yes. Yes!» Says Lillian.
-«Let's go pick up the ONE person who can convince Erna.» Says NewGirl.
+«Let's go pick up the ONE historical person who can convince Erna.» Says NewGirl.
 
-«It's not you, so I guess you plan to sail in time and get some super convincing person.» Says Lillian.
+«I guess you plan to sail back in time and get some super convincing lady. A Queen maybe?» Says Lillian.
 «Yes actually.» Says NewGirl.
+«Ok, I'll just ask my dad when I need to be back for dinner, get a few things and YOU sail your TimeShip down here.» Says Lillian pointing at the gravel.
+«YOU climb up HERE.» Says NewGirl.
+«No.» Says Lillian.
+«Well, about THAT. I might have a tiiiny glitch...» Says NewGirl.
+«Glitch? Stop complaining abou a glitch. Turn it off and on again.» Says Lillian
+«Yeah-No. I have tried both.» Says NewGirl.
 
-«Ok, I'll just ask my parents when I have to be back for dinner and then we can sail. Get your TimeShip down here I am not allowed to climb the roof.» Says Lillian.
-«Well, about that. My TimeShip can sail in time and space, but not "sail" in space within the same "time". If that makes any sense to you.» Says NewGirl.
+«Does the time-travel-engine still work, I mean can you sail in time still?» Says Lillian
+«Yes. I can sail in time and space, just not, you know "sail around".» Says NewGirl.
+«Good. Just push your Ship closer to the edge of the roof, and when I come back out you push it all the way down to the ground.» Says Lillian.
+«Nooo!» Says NewGirl.
+«Yes. I'll be right back.» Lillian goes inside and comes back out carrying a pink lunch box and a rope under one arm and a glittery, green helmet under the other arm. Lillian straps the helmet on, tosses the rope end up and says.
+«Tie the rope around the horn. Now push! And we'll get in and sail off!»
+«Poor beautiful Ship.» NewGirl pushes the TimeShip down with a crash! The two girls get inside quick and sail off with a POOOF!
 
-«Just push it closer to the edge. And when i come back out you push it all the way down.» Says Lillian.
-«Nooo!.» Says NewGirl.
+What happens in the past mostly stays in the past, you can check a history book for 1554 if you want half truths and lies. 😜
 
-«Yes. I'll be right back.» Lillian wnt inside and when she came back out she carried a lunch box and a pink rain jacket.
-«Now push! And we'll jump in and sail off!.» Says Lillian.
+A quick summary:
+Lillian learns that NewGirls name is Ruby and that Ruby's special friend is Queen Elizabeth.
 
-«Ok.» NewGirl pushes the TImeShip down with a loud crash. The two girls get inside and sail off with a POOOF! When they returns from their sailing trip in time, they land inside Erna's home office. The conversation was awkward at first, but both heads of state were used to weird conversations so they soon came to the understanding that they neededthe room alone.
+The tree of them returns from their sailing trip in time, landing inside Erna's home office.
+It was kind of awkward for several reasons, one reason was the forth person stepping out of the TimeShip with a bag over her head and Lillians rope around hands and feet. The witness.
 
-«Please leave us.» Says Lizabeth.
+The conversation was also awkward at first, but both heads of state were used to weird conversations however so they soon came to the understanding that they needed the room alone.
 
-Lillian, NewGril and the Erna's people leave for the living room.
+«Please leave us.» Says Erna.
+
+Lillian, Ruby, Erna's people and the prisoner leave for the living room where cookies and tea are served by a burly police officer.
 
 «What ARE they talking about in there?» Says Lillian.
-«I have NO clue, but don't worry. My sister is GOOD at talking to politichans. The best maybe. She knows the game of power backwards. But where DID you tell your parents you were going?» Says NewGirl.
+«I have NO clue, but don't worry. Elizabeth is GOOD at talking to politicans. The best maybe. She knows the game of power backwards. But where DID you tell your dad you were going?» Says NewGirl.
 
-«To the closed kindergarten next door. I don't like lying to them, but I will ask for forgiveness when I come home.» Says Lillian.
+«To the closed kindergarten next door. I don't like lying to dad, but I will ask for forgiveness when I come home.» Says Lillian.
 
-Later, Erna and Lizabeth comes out smiling. Lillian and NewGirl waited in silence.
+Later, Erna and Elizabeth comes out smiling. Lillian and Ruby waits in silence.
 
-«I am glad to say I will open all the kindergartens!» Says Erna.
+«I am glad to say I will open all the kindergartens!» Says Erna smiling a big smile.
 
 «Yess!» Says Lillian.
-«Let's get you home.» Says NewGirl.
+«Let's get you home.» Says Ruby.
 
 Here is Lillian on her way home from playing outdoors all day with her friends at kindergarten. In her head she sees a picture of the new addition to her Climbing-Ship.
 
